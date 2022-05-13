@@ -1,2 +1,2 @@
 # meu-primeiro-reposit-rio
-sou legal
+sou legal e estudante,e gosto de musica  
